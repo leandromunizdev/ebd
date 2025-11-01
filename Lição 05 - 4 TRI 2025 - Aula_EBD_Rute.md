@@ -374,8 +374,6 @@ Ore para que sejamos fiéis a Deus e aos nossos semelhantes.
 
 <div align="center">
 
-**Prepared with ❤️ for Biblical Studies**
-
 *Esta aula foi preparada com base na Lição 05 da EBD Betel - 4° Trimestre de 2025*
 
 </div>
